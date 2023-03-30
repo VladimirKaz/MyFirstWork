@@ -1,2 +1,2 @@
-# [MyFirstWorkhttps://vladimirkaz.github.io/MyFirstWork/](https://vladimirkaz.github.io/MyFirstWork/)
+# [MyFirstWorkhttps](https://vladimirkaz.github.io/MyFirstWork/)
  GikBrains
